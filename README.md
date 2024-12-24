@@ -5,7 +5,7 @@
 - Programming is not just a profession for me, it's a true passion that fuels my every day.
 - I find immense joy in learning new things related to programming and technology.
 - It's like solving a puzzle that constantly evolves, challenging me to think creatively and analytically.
-- 💞️ I’m looking to entry the industry to explore much better things and apply the things that i learned by contributing to the organisation that i work for
+- 💞️ I’m looking to explore much better things and apply the things that i learned by contributing to the organisation that i work for
 - 📫 How to reach me r.madhumitha94@gmail.com
 
 <!---
